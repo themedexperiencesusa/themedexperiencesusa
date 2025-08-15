@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+stay tuned for your mind to be blown 
 <!--
 **themedexperiencesusa/themedexperiencesusa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
